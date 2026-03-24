@@ -136,8 +136,8 @@ Contributions are welcome! Feel free to fork this repo and submit pull requests.
 
 For any queries or collaboration:
 
-* LinkedIn: (Add your profile link)
-* Email: (Your email)
+* LinkedIn: (https://www.linkedin.com/in/muhammad-bilal-sarwar-b5b4a4368?utm_source=share_via&utm_content=profile&utm_medium=member_android)
+* Email: (bilalsarwarbilalsarwar03@gmail.com)
 
 ---
 
